@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DichEtaCom.github.io/rsschool-cv/cv
