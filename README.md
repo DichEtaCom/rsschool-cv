@@ -1,1 +1,0 @@
-https://DichEtaCom.github.io/rsschool-cv/cv
